@@ -1,6 +1,6 @@
 - 👋 I’m @duboy1
 - 👀 I’m interested in airdrop
-- and cryptos
+- and all
   
 
 <!---
